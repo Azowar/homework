@@ -1,0 +1,1 @@
+pulzujicimince.kvalitne.cz
